@@ -1,4 +1,4 @@
-
+oil empire custom Scripts is the best oil empire Script, featuring silent aim and no clip. Safe and powerful for all your needs.
 
 
 
